@@ -1,13 +1,5 @@
-- National Scholarship of Graduate Student, 2024.
-
-- First-prize Scholarship of CUMT, 2024.
-
-- First-prize Scholarship of CUMT, 2023.
-
-- Freshman Scholarship of CUMT, 2022.
-
-- Excellent Graduation Project of Jiangsu Province, 2022.
-
-- First-prize Enterprise Scholarship of CUMT, 2020.
-
-- First-prize Scholarship of CUMT, 2019.
+2022-2023、2023-2024年苏州大学“三好学生”称号
+2022-2023、2023-2024年苏州大学学习优秀一等奖
+2022-2023、2023-2024年苏州大学精神文明专项奖
+2022-2023、2023-2024年苏州大学综合奖学金
+2023-2024年苏州大学创新创业奖学金一等奖
